@@ -13,4 +13,4 @@
 
 А тут моё прекраснейшее фото
 
-![picture]("C:\Арты\14a885ab-0ce4-440f-9967-00f322e0a831.jpg") 
+![picture](https://www.nicepng.com/png/detail/956-9567416_ghostemane-mercury-trashgang-ghostemane-mercury-png.png) 
